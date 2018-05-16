@@ -5,7 +5,7 @@
 
 最新地址三：https://xin.qicishe.info
 
-备用地址四：https://dizhi.qicishe.in
+备用地址四：https://dizhi.qicishe.org
 
 收藏下面地址发布页或发任意邮件到：dizhicom@gmail.com 自动回复最新地址
 
