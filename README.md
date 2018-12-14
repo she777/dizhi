@@ -1,11 +1,11 @@
 # 最新地址
-最新地址一：https://www.qicishe.com
+最新地址一：https://www.qicipa.com
 
-最新地址二：https://zui.qicishe.net
+最新地址二：https://zui.qicipa.net
 
-最新地址三：https://xin.qicishe.info
+最新地址三：https://xin.qicipa.info
 
-备用地址四：https://dizhi.qicishe.org
+备用地址四：https://dizhi.qicipa.org
 
 收藏下面地址发布页或发任意邮件到：dizhicom@gmail.com 自动回复最新地址
 
